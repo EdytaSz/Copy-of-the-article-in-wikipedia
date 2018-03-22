@@ -1,0 +1,2 @@
+# Copy-of-the-article-in-wikipedia
+This is just a copy of the Wikipedia article. Use and copying of elements is only possible under the terms and conditions of the Wikimedia Foundation, Inc. I am not responsible for using the copy of the article in contravention of the laws and regulations of the Wikimedia Foundation, Inc. Links to regulations are on the original wikipedia page at the very bottom of the page.
